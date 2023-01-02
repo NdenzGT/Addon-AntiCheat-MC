@@ -1,0 +1,1 @@
+Welcome to Ryuuu, an anti-cheat designed to protect your world from cheaters. RyuuuXTeam is designed to be smarter than cheaters by giving users access to advanced tools to protect their world from hacked items, nuker, crashes, griefing, and so much more. Ryuu makes it possible to protect permissions and manage performance with the click of a button!
